@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DharraP
+- 👋 Hi, I’m @DharraParul
 - 👀 I’m interested in Game Devlopment 
 - 🌱 I’m currently learning and i am b.tech student (CSE)
 - 💞️ I’m looking to collaborate on gaming
