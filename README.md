@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DharraParul
-- 👀 I’m interested in Game Devlopment 
-- 🌱 I’m currently learning and i am b.tech student (CSE)
-- 💞️ I’m looking to collaborate on gaming
+- 👀 I’m interested in Devlopment and want to become a coder 
+- 🌱 I’m currently learning new skills and i have done my B.Tech in (CSE)
+- 💞️ I’m looking to collaborate on gaming and the skills to develope my skills om the next level
 - 📫 How to reach me Call me on - 9729299394,or Dharraparul309@gmail.com
 
 <!---
